@@ -7,7 +7,7 @@
 <br />
 <br />
 
-🔭 I’m currently working in Melvi Saúde as a jack of all trades
+🔭 I’m currently working in Will Bank as a software engineer
 
 📫 How to reach me **marcelo.tozzi@outlook.com**
 <br />
